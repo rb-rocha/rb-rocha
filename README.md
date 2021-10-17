@@ -1,4 +1,4 @@
-### Como já dizia o E.T. Bilu, "busquem conhecimento!"
+### Como já dizia o E.T. Bilu, busquem conhecimento!
 
 ##
 
