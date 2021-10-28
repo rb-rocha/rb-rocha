@@ -1,4 +1,6 @@
-### Roberto Rocha
+### Como já dizia o E.T. Bilu, busquem conhecimento!
+
+##
 
 <div style="display: inline_block" align="center">
   <a href="https://github.com/rb-rocha">
